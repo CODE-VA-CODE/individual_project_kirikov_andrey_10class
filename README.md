@@ -1,0 +1,1 @@
+# individual_project_kirikov_andrey_10class
